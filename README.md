@@ -4,5 +4,5 @@
 - 💬 Ask me about why ur dad left
 - 📫 How to reach me: dont
 - 😄 Pronouns: fart/fartself
-- ⚡ Fun fact: i eat fart xd
+- ⚡ Fun fact: my dad is still here (L + bozo + ratio)
 -->
